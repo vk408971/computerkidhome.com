@@ -1,1 +1,1 @@
-# https-sites.google.com-view-computerkidhome-home
+# https://computerkidhome-home
